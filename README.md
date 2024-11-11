@@ -1,4 +1,4 @@
-# Hi there! I'm Yoruba Dine 👋
+# Hi there! I'm Parinay Raya👋
 
 I'm a passionate and dedicated final-year Master of Computer Application (MCA) student from MITM College, holding a 7.7 CGPA. I love exploring different dimensions of technology and pushing the limits of what I can create. Below, you'll get a glimpse of my journey, skills, and the projects I've built along the way.
 
