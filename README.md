@@ -43,7 +43,7 @@ Feel free to explore my projects or connect for collaborations. Let's create som
 ---
 
 ### Connect with Me
-- [LinkedIn](#)  
-- [Email](#)
+- [LinkedIn](https://www.linkedin.com/in/parinay-raya-49118a194/)
+- [Email](parinayraya7432@gmail.com)
 
 **Let's code and build a better future, one project at a time!**
